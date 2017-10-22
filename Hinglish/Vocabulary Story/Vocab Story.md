@@ -1,0 +1,2 @@
+Once upon a time there was a villager name Raju in India who wants to learn english.But he was not able to learn english even though he tried.Then one day while he was going to his office,he saw a man sharing knowledge to a group with a very fluent english.So,Raju approached him and he was astonished to see his old friend Ram.
+Then Raju wants to be like him and told him to mentor him.Know more about [Hinglish](https://en.wikipedia.org/wiki/Hinglish).
